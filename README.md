@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="165" height="115" alt="f98-1360255598" src="https://github.com/user-attachments/assets/880bca11-2248-418e-9214-b812cd0283cc" />
 
 <!--
 **jellyfisheart/jellyfisheart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
