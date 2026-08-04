@@ -7,17 +7,15 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
  I might be boring unintentionally.. (Intentionally if you're low tier ragebaiting me.) Until you seem easy enough to riff with
 
 # **I have no intentions on becoming closer with the following:** 
-## TLDR: DNI IF YOU ARE RACIST, A MINOR, MEAN, OR CAUSE UNNECESSARY DRAMA
+## TLDR: DNI IF YOU ARE RACIST, A MINOR, LIKE THAT KINDA SHIT, OR CAUSE UNNECESSARY DRAMA.
 
 - **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It should be stated that I don't want you anywhere near my inner circle. You gotta die!!! 
 
 - If you can't specify your age when asked. It's not interrogation, it's clarification, I'm 20+, I do not want to talk to people 17 and under. It weirds me out when I see people say -16... Therefore **18 and older only. NO exceptions** int please and thank you
 
-- People who can't communicate if there's some sort of issue.. We should be MATURE adults, therefore should be able to talk things out unless you do/say something unforgivable.. I will try my best to reason with and understand most things, literally just tell me instead of leaving me in the dark/being vague. We leave the mysterious shit behind the moment we hit the PLAY button on PONY.TOWN 😂
- 
-- UNLESS you're Evan or Alexis I'll go ahead and say MCYT of any kind should interact with *caution* atp.. You guys are loose cannons and I don't want to deal with that kind of stress, one of us is gonna have to turn our device off and I'm not the one stirring things up... Wait unless one of you called for drinks..? ANYWAY
+  - Predators, Zoos, Lolisho, and Proship/Darkship what the fuck ever also has to go. You will all be getting lumped into the same category to me, sorry not sorry.
 
-- Just putting it out there, if you say something about or relatively about my friends, I'm going to bring it up. I have no interest being fake esp toward my close friends compared to people I hardly know. I will be confrontational if I have to. I'd hope to be met with that same standard! ^.^
+- People who can't communicate if there's some sort of issue.. We should be MATURE adults, therefore should be able to talk things out unless you do/say something unforgivable.. I will try my best to reason with and understand most things, literally just tell me instead of leaving me in the dark/being vague. We leave the mysterious shit behind the moment we hit the PLAY button on PONY.TOWN 😂
 
 - All of that being said I'm very disinterested in drama or any type of hostility!! I'm not a serious person nor will I take you seriously until it's appropriate. If you have boundaries or triggers, plainly lay them out for me to avoid, it's not my job to walk on eggshells. It's my job to crack them open and make an omelette HAH! HAH! Ahh... Mmmm omelette... 🤤
 
