@@ -26,4 +26,4 @@ I really do like meeting new people (and so desperately need to), I hope we can 
 
 
 <img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" />
-**^ART AND PFP BY @/DOHLYAAA ON TWT**
+^**ART AND PFP BY @/DOHLYAAA ON TWT**
