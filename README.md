@@ -14,7 +14,7 @@ I have no intentions on becoming closer with the following:
 
 C.) UNLESS you're Evan or Alexis I'll go ahead and say MCYT of any kind should interact with caution atp.. You guys are loose cannons and I don't want to deal with that kind of stress
 
-D.) All of that being said I'm very disinterested in drama or any type of hostility. I'm not a serious person nor will I take you seriously until it's appropriate. If you have boundaries or triggers, plainly lay them out to me for me to avoid, it's not my job to walk on eggshells, it's my job to crack them open and make an omelette HAH! HAH! ahh... Mmmm omelette... 🤤
+D.) All of that being said I'm very disinterested in drama or any type of hostility. I'm not a serious person nor will I take you seriously until it's appropriate. If you have boundaries or triggers, plainly lay them out for me to avoid, it's not my job to walk on eggshells, it's my job to crack them open and make an omelette HAH! HAH! ahh... Mmmm omelette... 🤤
 
  I don't block people unless I have to (usually temporary) because I don't want to sit on/near anyone I don't want to, I'd rather simply avoid them ^^ 
 
