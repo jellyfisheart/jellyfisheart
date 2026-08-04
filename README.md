@@ -1,7 +1,7 @@
 <img width="680" height="383" alt="IMG_2598" src="https://github.com/user-attachments/assets/e624355e-676f-4aa4-b00f-efbad41dbf18" />
 
 
-^ IDK anything about the fandom I'm not in it, I only play it.. I also just like this image/meme format alot
+^ IDK anything about the fandom, I'm not in it, I only play it.. I also just like this image/meme format alot
 
 
 UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's ugly, I just want to add a criteria that would be too long otherwise
