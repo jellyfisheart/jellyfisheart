@@ -7,7 +7,7 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
  I might be boring unintentionally.. (Intentionally if you're low tier ragebaiting me.) Until you seem easy enough to riff with
 
 # **I have no intentions on becoming closer with the following:** 
-## TLDR;;;;; RACIST, A MINOR, MEAN, CAUSE UNNECESSARY DRAMA
+## TLDR: DNI IF YOU ARE RACIST, A MINOR, MEAN, OR CAUSE UNNECESSARY DRAMA
 
 
  A.) You can't clarify your age when asked. It's not interrogation, it's clarification, I'm 20+, I do not want to talk to people 17 and under. It weirds me out when I see people say -16... Therefore 18 and older only int please and thank you
@@ -26,4 +26,4 @@ I really do like meeting new people (and so desperately need to), I hope we can 
 
 
 <img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" />
-^**ART AND PFP BY @/DOHLYAAA ON TWT**
+^ART AND PFP BY @/DOHLYAAA ON TWT
