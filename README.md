@@ -9,14 +9,13 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
 # **I have no intentions on becoming closer with the following:** 
 ## TLDR: DNI IF YOU ARE RACIST, A MINOR, MEAN, OR CAUSE UNNECESSARY DRAMA
 
-- **RACISM, ZIONISM, ANTISEMITISM AND XENOPHOBIA. IT SHOULDN'T BE SAID BUT DO NOT TALK TO OR TRY TO "REASON" WITH ME**
+- **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It should be stated that I don't want you anywhere near my inner circle. You gotta die!!! 
 
 - If you can't specify your age when asked. It's not interrogation, it's clarification, I'm 20+, I do not want to talk to people 17 and under. It weirds me out when I see people say -16... Therefore **18 and older only. NO exceptions** int please and thank you
 
-- People who can't communicate if there's some sort of issue.. We should be MATURE adults, therefore should be able to talk things out unless you do/say something unforgivable.. I will try my best to reason with and understand that which may be..
-
-
-- UNLESS you're Evan or Alexis I'll go ahead and say MCYT of any kind should interact with *caution* atp.. You guys are loose cannons and I don't want to deal with that kind of stress, one of us is gonna have to turn our device off and I'm not the one stirring things up.. Wait unless one of you called for drinks..? ANYWAY
+- People who can't communicate if there's some sort of issue.. We should be MATURE adults, therefore should be able to talk things out unless you do/say something unforgivable.. I will try my best to reason with and understand most things, literally just tell me instead of leaving me in the dark/being vague. We leave the mysterious shit behind the moment we hit the PLAY button on PONY.TOWN 😂
+ 
+- UNLESS you're Evan or Alexis I'll go ahead and say MCYT of any kind should interact with *caution* atp.. You guys are loose cannons and I don't want to deal with that kind of stress, one of us is gonna have to turn our device off and I'm not the one stirring things up... Wait unless one of you called for drinks..? ANYWAY
 
 - Just putting it out there, if you say something about or relatively about my friends, I'm going to bring it up. I have no interest being fake esp toward my close friends compared to people I hardly know. I will be confrontational if I have to. I'd hope to be met with that same standard! ^.^
 
