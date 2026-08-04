@@ -9,11 +9,11 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
 # **I have no intentions on becoming closer with the following:** 
 ## TLDR: DNI IF YOU ARE RACIST, A MINOR, LIKE THAT KINDA SHIT, OR CAUSE UNNECESSARY DRAMA.
 
-- **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It should be stated that I don't want you anywhere near my inner circle. You gotta die!!! 
+- **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It should be stated that I don't want you anywhere near my inner circle. You gotta die!!!
+
+-   - Predators, Zoos, Lolisho, and Proship/Darkship what the fuck ever also has to go. You will all be getting lumped into the same category to me, sorry not sorry.
 
 - If you can't specify your age when asked. It's not interrogation, it's clarification, I'm 20+, I do not want to talk to people 17 and under. It weirds me out when I see people say -16... Therefore **18 and older only. NO exceptions** int please and thank you
-
-  - Predators, Zoos, Lolisho, and Proship/Darkship what the fuck ever also has to go. You will all be getting lumped into the same category to me, sorry not sorry.
 
 - People who can't communicate if there's some sort of issue.. We should be MATURE adults, therefore should be able to talk things out unless you do/say something unforgivable.. I will try my best to reason with and understand most things, literally just tell me instead of leaving me in the dark/being vague. We leave the mysterious shit behind the moment we hit the PLAY button on PONY.TOWN 😂
 
