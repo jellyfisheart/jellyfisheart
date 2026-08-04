@@ -11,7 +11,7 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
 
 - **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** I don't want you anywhere near my inner circle.
 
-- Predators, Zoos, Lolisho, and Proship/Darkship what the fuck ever also has to go. You will all be getting lumped into the same category to me, sorry not sorry.
+- Predators, Zoos, Lolisho, Incest, and Proship/Darkship what the fuck ever also has to go. You will all be getting lumped into the same category to me, sorry not sorry.
 
 - If you can't specify your age when asked. It's not interrogation, it's clarification. I'm 20+, I do not want to talk to people 17 and under. It weirds me out when I see people say -16... Therefore **18 and older only. NO exceptions** int please and thank you
 
