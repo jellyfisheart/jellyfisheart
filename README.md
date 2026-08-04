@@ -1,4 +1,6 @@
 <img width="680" height="383" alt="IMG_2598" src="https://github.com/user-attachments/assets/e624355e-676f-4aa4-b00f-efbad41dbf18" />
+
+
 ^ IDK anything about the fandom I'm not in it.. Don't come at me I just like this image/meme format alot
 
 
