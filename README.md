@@ -21,7 +21,7 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
 
  I don't block people unless I have to (USUALLY((not always)) temporary) because I don't want to sit on/near anyone I don't want to, I'd rather simply avoid them ^^ 
 
-## I really do like meeting new people (and so desperately need to), I hope we can all roll around in dirt together!!! Plsplspls don't hesitate on hitting me up and trying to be closer so long as you're aware of what I'm disinterested in (see above) I go with the flow of things always 𑣲 ༊𑇓ೃ࿔ જ➴‏♡︎ 
+## I really do like meeting new people (and so desperately need to), I hope we can all roll around in dirt together!!! Plsplspls don't hesitate on hitting me up and trying to be closer so long as you're aware of what I'm disinterested in (see above) I go with the flow of things always 𑣲 ༊𑇓ೃ࿔ ଳ˖༘⋆ ᰔᩚ 
 
 
 <img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" />
