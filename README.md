@@ -9,7 +9,7 @@ UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's
 # **I have no intentions on becoming closer with the following:** 
 ## TLDR: DNI IF YOU ARE RACIST, A MINOR, LIKE THAT KINDA SHIT, OR CAUSE UNNECESSARY DRAMA.
 
-- **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** I don't want you anywhere near my inner circle.
+- **RACISTS, ZIONISTS, ANTI-SEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It shouldn't have to be said but I don't want you anywhere near my inner circle.
 
 - Predators, Zoos, Lolisho, Incest, and Proship/Darkship what the fuck ever also has to go. You will all be getting lumped into the same category to me, sorry not sorry.
 
