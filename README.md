@@ -21,7 +21,7 @@ FFFUUUUUCK THIS IS SO CORNY AND UGLYYYYYY..
 
 - All of that being said I'm disinterested in drama or any type of hostility! I'm not a serious person nor will I take you seriously until it's appropriate. If you have boundaries or triggers, plainly lay them out for me to avoid. It's not my job to walk on eggshells, it's my job to crack them open and make an omelette HAH! HAH! Ahh... Mmmm omelette... 🤤 
 
-## I really do like meeting new people (and so desperately need to), I hope we can all roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer so long as you're aware of what I'm disinterested in (see above) I go with the flow of things 𑣲 ༊𑇓ೃ࿔ ଳ˖༘⋆ ᰔᩚ 
+## I really do like meeting new people (and so desperately need to), I hope we can all roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer so long as you've read above! I will always go with the flow of things!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
 
 <img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" />
