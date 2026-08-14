@@ -4,7 +4,7 @@ FFFUUUUUCK THIS IS SO CORNY AND UGLY GAAAHHHHHH.
 
 
  I might be boring until you seem easy enough to riff with 
- 
+
  Don't associate me with fandoms/other fans
  
  NGL I tend to avoid people who use "we" when talking about themselves.. IDK it icks me out, I apologize
