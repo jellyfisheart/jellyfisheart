@@ -1,10 +1,12 @@
 <img width="680" height="383" alt="IMG_2598" src="https://github.com/user-attachments/assets/e624355e-676f-4aa4-b00f-efbad41dbf18" />
 
+FFFUUUUUCK THIS IS SO CORNY AND UGLY GAAAHHHHHH. 
 
-UU U UHHHH hi... I finally cracked and made one of these.... FUUUUCK. Sorry it's ugly, I just want to add a criteria that would be too long otherwise
 
-
- I might be boring unintentionally until you seem easy enough to riff with
+ I might be boring until you seem easy enough to riff with 
+ Don't associate me with fandoms/other fans
+ NGL I tend to avoid people who use "we" when talking about themselves.. IDK it icks me out, I apologize
+ 
 
 # **I have no intentions on becoming closer with the following:** 
 ## TLDR: DON'T BE A FUCKING FREAK 
