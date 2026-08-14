@@ -7,9 +7,6 @@ FFFUUUUUCK THIS IS SO CORNY AND UGLY GAAAHHHHHH.
 
  Don't associate me with fandoms/other fans
  
- NGL I tend to avoid people who use "we" when talking about themselves.. IDK it icks me out, I apologize
- 
-
 # **I have no intentions on becoming closer with the following:** 
 ## TLDR: DON'T BE A FUCKING FREAK 
 - **RACISTS, ZIONISTS, ANTISEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It shouldn't have to be said but for good measure since I never know with this bum ass game
