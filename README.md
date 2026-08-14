@@ -7,7 +7,7 @@ FFFUUUUUCK THIS IS SO CORNY AND UGLYYYYYY..
 
  Don't associate me with fandoms/other fans
 
- I don't block people unless I have to
+ I don't block people until I feel I have to
  
 # **I have no intentions on becoming closer with the following:** 
 ## TLDR: DON'T BE A FUCKING FREAK 
