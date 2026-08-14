@@ -13,7 +13,7 @@ FFFUUUUUCK THIS IS SO CORNY AND UGLYYYYYY..
 ## TLDR: DON'T BE A FUCKING FREAK 
 - **RACISTS, ZIONISTS, ANTISEMITES, AND PEOPLE WHO SPOUT XENOPHOBIA.** It shouldn't have to be said but for good measure since I never know with this bum ass game
 
-- Predators, Zoos, Lolisho, Incest, and Proship whatever you proudly call yourself. It's all the same to me NGL
+- Predators, Zoos, Lolisho, Incest, and Proship/whatever you proudly call yourself. It's all the same to me NGL
   
 - If you can't specify your age when asked. I'm 20+, I do not want to talk to people 17 and under. There are no exceptions to that
 
