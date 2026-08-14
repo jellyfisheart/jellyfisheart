@@ -1,6 +1,6 @@
 <img width="680" height="383" alt="IMG_2598" src="https://github.com/user-attachments/assets/e624355e-676f-4aa4-b00f-efbad41dbf18" />
 
-FFFUUUUUCK THIS IS SO CORNY AND UGLY GAAAHHHHHH. 
+FFFUUUUUCK THIS IS SO CORNY AND UGLYYYYYY..
 
 
  I might be boring until you seem easy enough to riff with 
