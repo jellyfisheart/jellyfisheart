@@ -17,7 +17,7 @@ FFFUUUUUCK THIS IS SO CORNY AND UGLYYYYYY..
   
 - If you can't specify your age when asked. I'm 20+, I do not want to talk to people 17 and under. There are no exceptions to that
 
-- We leave the mysterious shit behind the moment we hit the PLAY button on PONY.TOWN. 😂 If you're a mature adult you will talk to me if there's an issue. If you are vague with your issue you have with me and/or my friends. (ex. "You follow someone I don't like. won't say who though") I can tell you handle things poorly and for that I will truly keep my distance. 
+- We leave the mysterious shit behind the moment we hit the PLAY button on PONY.TOWN. 😂 If you're a mature adult you will talk to me if there's an issue. If you are vague with your issue you have with me and/or my friends. (ex. "You follow someone I don't like. won't say who though" or you're one of those people who dont talk before blocking, it is indeed your job to use your grown up communication skills!! Fun fact!! ^^) I can tell you handle things poorly and for that I will truly keep my distance. 
 
 - All of that being said I'm disinterested in drama or any type of hostility! I'm not a serious person nor will I take you seriously until it's appropriate. If you have boundaries or triggers, plainly lay them out for me to avoid. It's not my job to walk on eggshells, it's my job to crack them open and make an omelette HAH! HAH! Ahh... Mmmm omelette... 🤤 
 
