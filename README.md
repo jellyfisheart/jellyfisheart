@@ -5,7 +5,7 @@ Don't be a piece of shit.
 
 I might be boring until you seem easy enough to riff with 
 
- Don't associate me with fandoms/other fans
+ Don't associate me with fandoms/other fans who're freakish or weird
 
  I don't block people until I feel I have to
 
