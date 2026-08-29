@@ -1,5 +1,5 @@
 
-My meds just kicked in LOL
+I'm medicated. Nothing is serious to me. If you have an issue tell me flat out ❣️ WE (as in you and me) don't have time for this
 
 Don't be a piece of shit. 
 
