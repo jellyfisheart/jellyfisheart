@@ -1,7 +1,7 @@
 
 I'm medicated. Nothing is serious to me. If you have an issue tell me flat out ❣️ WE (as in you and me) don't have time for this
 
-MDNI. DNC. 
+MDNI. DNC. Keep inspo limited if at all
 
 Don't be a piece of shit. 
 
