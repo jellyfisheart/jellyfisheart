@@ -9,7 +9,7 @@ I might be boring until you seem easy enough to riff with
 
  Don't associate me with fandoms/other fans who're freakish or weird
 
- I don't block people until I feel I have to
+ I don't fully block people until I feel I have to
 
  It's pixel horses bro. 
  
