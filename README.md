@@ -5,13 +5,12 @@ MDNI. DNC. Keep inspo limited if at all
 
 Don't be a piece of shit. (racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
 
-I'll keep my distance if any of the above apply to you
 
 I might be boring until you seem easy enough to riff with 
 
  Don't associate me with fandoms/other fans who're freakish or weird
 
- I don't fully block people until I feel I have to
+ I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
  It's pixel horses bro. 
  
