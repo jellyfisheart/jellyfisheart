@@ -3,7 +3,7 @@ I'm medicated. Nothing is serious to me. If you have an issue tell me flat out â
 
 MDNI. DNC. Keep inspo limited if at all
 
-Don't be a piece of shit. (racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting) 
+Don't be a piece of shit. (racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
 I'll keep my distance if these apply to you.
 
 I might be boring until you seem easy enough to riff with 
