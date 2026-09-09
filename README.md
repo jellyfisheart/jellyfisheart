@@ -1,6 +1,8 @@
 
 I'm medicated. Nothing is serious to me. If you have an issue tell me flat out ❣️ WE (as in you and me) don't have time for this
 
+ I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
+
 MDNI. DNC. Keep inspo limited if at all
 
 Don't be a piece of shit. (Racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
@@ -10,7 +12,6 @@ I might be boring until you seem easy enough to riff with
 
  Don't associate me with fandoms/other fans who're freakish or weird
 
- I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
 I want to make my stance known. I typically try to avoid "sys" people (aka people who put sys in their name). I won't come up to harass you or debate your illness (and hope in turn you wouldn't harass me)... I just also try to avoid people who wave their mental illnesses around.. I will still be nice to you and welcome interaction, just know I don't plan to be consistent with conversing, especially if you use things like "us, we, our" in place of "I, me, my" .. Sorry ..
  
