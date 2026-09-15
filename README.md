@@ -9,11 +9,10 @@ Don't be a piece of shit. (Racist, proshipper, wtf ever else. Y'all like to crea
 
 DNC. Keep inspo limited if at all
 
-I might be boring until you seem easy enough to riff with 
+I might be boring until you seem easy enough to riff with
 
  Don't associate me with fandoms/other fans who're freakish or weird
 
-I want to make my stance known. I typically try to avoid "sys" people (aka people who put sys in their name). I won't come up to harass you or debate your illness (and hope in turn you wouldn't harass me)... I just also try to avoid people who wave their mental illnesses around.. I will still be nice to you and welcome interaction, just know I don't plan to be consistent with conversing, especially if you use things like "us, we, our" in place of "I, me, my" .. Sorry ..
  
 ## Other than that I really like meeting new people (and so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow of things!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
