@@ -3,7 +3,9 @@ I'm medicated. Nothing is serious to me. If you have an issue tell me flat out â
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
-MDNI. DNC. Keep inspo limited if at all
+MINORS DNI. PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME
+
+DNC. Keep inspo limited if at all
 
 Don't be a piece of shit. (Racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
 
