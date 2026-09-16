@@ -1,5 +1,5 @@
 
-I'm medicated. Nothing is serious to me. If you have an issue tell me flat out or get help.❣️ WE (as in you and me) don't have time for this
+I'm medicated. Nothing is serious to me. If you have an issue tell me flat out or get help.❣️ 
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
