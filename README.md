@@ -3,7 +3,7 @@ I'm medicated. Nothing is serious to me. If you have an issue tell me flat out o
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
-MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME
+MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague either, just "adult" is sus asf.
 
 Don't be a piece of shit. (Racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
 
