@@ -1,5 +1,6 @@
 
-I'm medicated. Nothing is serious to me. If you have an issue tell me flat out or get help, or a job, or both!❣️                                                         (((Bee tee dubs if you talk about me behind my back I think you're a sad, sad, miserable little person who needs to get a life other than complaining all the time)))
+I'm medicated. Nothing is serious to me. If you have an issue tell me flat out or get help, or a job, or both!❣️ 
+(((Bee tee dubs if you talk about me behind my back I think you're a sad, sad, miserable little person who needs to get a life other than complaining all the time)))
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
