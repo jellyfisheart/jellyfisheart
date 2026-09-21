@@ -1,4 +1,4 @@
-**I LOVE MY FRIENDS!!!!!! MORE THAN ANYTHING!!! All my friends viewing this im giving you big SMACK on the lips 💗💓❤️‍🩹💞** 
+**I LOVE MY FRIENDS!!!!!! MORE THAN ANYTHING!!! All my friends viewing this I'm giving you big SMACK on the lips 💗💓❤️‍🩹💞** 
 
 ## For everyone else who may wish to be closer:
 
