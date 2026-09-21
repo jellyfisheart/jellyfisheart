@@ -1,6 +1,6 @@
 I LOVE MY FRIENDS!!!!!! MORE THAN ANYTHING!!! All my friends viewing this im giving you big SMACK on the lips 💗💓❤️‍🩹💞
 
-For everyone else who may wish to be closer:
+## For everyone else who may wish to be closer:
 
 I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 💘
 
