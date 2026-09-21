@@ -1,5 +1,5 @@
 
-I'm medicated. Nothing is serious to me. If you have an issue tell me flat out, get help, or get a job, or both!❣️ 
+I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 💘
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
