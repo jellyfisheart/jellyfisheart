@@ -17,6 +17,7 @@ I might be boring until you seem easy enough to riff with
 ## Other than that I really like meeting new people (and so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow of things!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
 
-<img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" />
+<img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" /> <img width="526" height="702" alt="HSHwafkWIAQ-a07" src="https://github.com/user-attachments/assets/44743d63-9a67-4741-95b8-12669f1478a8" />
 
-**ART BY @/DOHLYAAA ON TWT  PFP BY @/AERHYDE ON IG**
+
+**ART AND BY @/DOHLYAAA ON TWT**
