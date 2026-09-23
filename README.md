@@ -8,7 +8,7 @@ I'm 20 and medicated. I take nothing seriously. If you have an issue either tell
 
 MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague either, just "adult" is sus asf.
 
-Don't be a piece of shit. (Racist, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
+Don't be a piece of shit. (Racist, groomer, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
 
 DNC. Keep inspo limited if at all
 
