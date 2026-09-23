@@ -2,7 +2,7 @@
 
 ## For everyone else who may wish to be closer:
 
-I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 𖹭𖹭𖹭𖹭𖹭!!! I literally don't gaf about confrontation just tell me what I did and I'll apologize and hope we can move on. If you're the type to drop someone after one mistake DNI please for my sake, I'm a human who makes those and would rather NOT have to walk on eggshells for everyone I meet. Don't put me on a pedestal cause I do make fuckups.. like a normal human
+I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 𖹭𖹭𖹭𖹭𖹭!!! I literally don't gaf about confrontation just tell me what I did and I'll apologize and hope we can move on. If you're the type to drop someone after one mistake DNI please for my sake, I'm a human who makes those and would rather NOT have to walk on eggshells for everyone I meet. Don't put me on a pedaestal cause I do make fuckups.. Like a normal human.
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
@@ -10,7 +10,7 @@ MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague
 
 Don't be a piece of shit. (Racist, groomer, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) 
 
-DNC. Keep inspo limited if at all
+DNC. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
 
 I might be boring until you seem easy enough to riff with
 
