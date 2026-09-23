@@ -2,7 +2,7 @@
 
 ## For everyone else who may wish to be closer:
 
-I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 💘 I literally don't gaf about confrontation just tell me what I did, I'll apologize and we can move on. If you're the type to drop someone after one mistake DNI please for my sake.
+I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 💘🩷 I literally don't gaf about confrontation just tell me what I did, I'll apologize and we can move on. If you're the type to drop someone after one mistake DNI please for my sake. I'm a human who makes those and would rather NOT have to walk on eggshells for everyone I meet. Don't put me on a pedestal cause I do have fuckups.. 
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
