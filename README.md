@@ -2,7 +2,9 @@
 
 ## For everyone else who may wish to be closer:
 
-I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 𖹭𖹭𖹭𖹭𖹭!!! I literally don't gaf about confrontation just tell me what I did and I'll apologize so we can move on. If you're the type to drop someone at the drop of the hat/out of nowhere without talking about it like a normal adult human does then DNI please for my sake, I'm a human who makes mistakes and would rather NOT have to walk on eggshells for everyone I meet. (P.s. Don't put me on a pedestal or get too attached.. I'm nicer than most but I still have many flaws. I play ponytown for gods sake.) 
+I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 𖹭𖹭𖹭𖹭𖹭!!! I literally don't gaf about confrontation just tell me what I did and I'll apologize so we can move on. 
+
+If you're the type to drop someone basically out of nowhere without talking about it and after apologies like a normal adult then DNI please for my sake, I'm a human who makes mistakes and would rather NOT have to walk on eggshells for everyone I meet. (P.s. Don't put me on a pedestal or get too attached.. I'm be extremely nice and hype but I still have many flaws. I made a github for ponytown for gods sake..) 
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
@@ -15,6 +17,8 @@ DNC. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and 
 I might be boring until you seem easy enough to riff with
 
  Don't associate me with fandoms/other fans who're freakish or weird
+
+ If you're the miserable type that does nothing but talk shit behind ex friends' backs and basically nothing else then please don't talk to me. It's ok to lore drop IF it's entertaining but if you do it at a constant where half of our conversations are nothing but complaining about irrelevant people (half of which I dont know/give a shit about) then please go somewhere else or find a new hobby/interest we can talk about.. Again, you are miserable and I'm not going to be dragged down into your self-made mess
 
  
 ## Other than that I really like meeting new people (and so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow of things!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
