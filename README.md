@@ -2,7 +2,7 @@
 
 ## For everyone else who may wish to be closer:
 
-I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 𖹭𖹭𖹭𖹭𖹭!!! I literally don't gaf about confrontation just tell me what I did and I'll apologize so we can move on. If you're the type to drop someone at the drop of the hat out of nowhere without talking about it like a normal adult human does then DNI please for my sake, I'm a human who makes mistakes and would rather NOT have to walk on eggshells for everyone I meet. (P.s. Don't put me on a pedestal or get too attached.. I'm nicer than most but I still have many flaws. I play ponytown for gods sake.) 
+I'm 20 and medicated. I take nothing seriously. If you have an issue either tell me or get a life, a job, a hobby or all of the above 𖹭𖹭𖹭𖹭𖹭!!! I literally don't gaf about confrontation just tell me what I did and I'll apologize so we can move on. If you're the type to drop someone at the drop of the hat/out of nowhere without talking about it like a normal adult human does then DNI please for my sake, I'm a human who makes mistakes and would rather NOT have to walk on eggshells for everyone I meet. (P.s. Don't put me on a pedestal or get too attached.. I'm nicer than most but I still have many flaws. I play ponytown for gods sake.) 
 
  I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
 
