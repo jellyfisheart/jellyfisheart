@@ -2,7 +2,7 @@
 
 ## For everyone else who may wish to be closer:
 
-I'm 20 and medicated. I take nothing seriously. I literally don't gaf about confrontation just tell me what I did and I'll apologize so we can move on; If you're the type to drop someone for something that can be discussed between *normal* adults then DNI please for my sake, I'm a human who makes mistakes and would rather NOT have to walk on eggshells for everyone I meet. (This applies to personal boundary topics, where if I overstep somehow without even knowing. communication is key! 😇)
+I'm 20 and medicated. I take nothing seriously. I literally don't gaf about confrontation just tell me what I did and I'll apologize
 
 MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague either, just "adult" is sus asf.
 
