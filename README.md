@@ -8,6 +8,8 @@ MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague
 
 Don't be a piece of shit. (Racist, groomer, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) ((Seriously just follow the basic DNI Idrk what else I could put on this line besides for that)) 
 
+I make my thoughts and feelings known, you can easily figure all of that out with a few conversations if you say a few magic words
+
  don't fully block people **until I feel I have to.** I will typically keep my distance or hide you for a few hours/days
 
 DNC. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
