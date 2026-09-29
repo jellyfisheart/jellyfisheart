@@ -6,7 +6,7 @@ I'm 20 and medicated. I take nothing seriously. I literally don't gaf about conf
 
 MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague either, just "adult" is sus asf.
 
-Don't be a piece of shit. (Racist, groomer, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) ((Seriously just follow the basic DNI Idrk what else I could put on this line besides for that)) 
+Don't be a piece of shit. Seriously just follow the basic DNI Idrk what else I could put on this line besides for that. Proshippers included. NOT FRIENDLY NOT FRIENDLY
 
 I make my thoughts and feelings known, you can easily figure all of that out easily if you say a few magic words
 
