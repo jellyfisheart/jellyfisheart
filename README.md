@@ -4,11 +4,11 @@
 
 I'm 20 and medicated. I take nothing seriously. I literally don't gaf about confrontation just tell me what I did and I'll apologize so we can move on; If you're the type to drop someone for something that can be discussed between *normal* adults then DNI please for my sake, I'm a human who makes mistakes and would rather NOT have to walk on eggshells for everyone I meet. (This applies to personal boundary topics, where if I overstep somehow without even knowing. communication is key! 😇)
 
- I don't fully block people until I feel I have to. I will typically keep my distance or hide you for a few hours/days
-
 MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague either, just "adult" is sus asf.
 
 Don't be a piece of shit. (Racist, groomer, proshipper, wtf ever else. Y'all like to create new ways to be off-putting.) ((Seriously just follow the basic DNI Idrk what else I could put on this line besides for that)) 
+
+ don't fully block people **until I feel I have to.** I will typically keep my distance or hide you for a few hours/days
 
 DNC. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
 
