@@ -2,7 +2,7 @@
 
 ## For everyone else who may wish to be closer:
 
-I'm 20 and medicated. I take nothing seriously. I literally don't gaf about confrontation just tell me what I did and I'll apologize
+I'm 20 and medicated. I take nothing seriously. I literally don't gaf about confrontation just tell me what I did and I'll apologize, it stresses you out more than me 
 
 MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague either, just "adult" is sus asf.
 
