@@ -23,8 +23,3 @@ I might be boring until you seem easy enough to riff with
 <img width="2048" height="1375" alt="HKc52XfX0AAg269" src="https://github.com/user-attachments/assets/7ce33e0f-e3b2-4910-a122-a02a3ea5a000" /> 
 
 **ART AND PFP BY @/DOHLYAAA ON TWT**
-
-
-I have to remember half of the people on ponytown aren't normal... If you get too block happy where you literally block someone for their chat bubbles covering you??? Because they're talking to people on the game where you literally... TALK.. To people and that's literally the whole purpose then please log off.. go outside.. Idk what to tell you, it won't help you to block someone for that because now they're probably gonna unintentionally sit on you. covering you. yk....? go tf outside. you people are WEIIIIRRRRDDDDUH
-
-you cannot be mad when people come up to talk outside of whispers and their chat bubbles cover you a bit when you're presumably afk because you wont move. ong man we are all in hell because im typing this bullshit out.
