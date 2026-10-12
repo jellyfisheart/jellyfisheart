@@ -18,7 +18,7 @@ I make my thoughts and feelings known, you can easily figure all of that out if 
 
 I might be boring until you seem easy enough to riff with. (It may take me a second to speak with someone consistently)
 
-Apologies in advance cause I really just have a higher guard that keeps me from seeming interesting or really like a person to most.. ah hah hah..
+Apologies in advance, I really just have a higher guard that keeps me from seeming interesting or really like a person to most.. ah hah hah..
  
 ## I really like meeting new people! (+ so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
