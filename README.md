@@ -8,7 +8,7 @@ MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague
 
 Don't be a piece of shit. Seriously just follow the basic DNI Idrk what else I could put on this line besides for that.
 
-Stay far, far away if you're a freak that likes to look at kids dating adults or family dating family. I will call it like I see it, watering it down by using bs words and terms like "pro/dark/ship/fic" isn't gonna slide. You can have a small slice, but it all comes from the same pie.
+Stay far, far away if you're a freak that likes to look at kids dating adults or family dating family. I will call it like I see it, watering it down by using bs words and terms like "pro/dark/ship" isn't gonna slide. You can have a small slice, but it all comes from the same pie.
 
 I make my thoughts and feelings known, you can easily figure all of that out if you say a few magic words
 
@@ -16,9 +16,9 @@ I make my thoughts and feelings known, you can easily figure all of that out if 
  
  DO NOT COPY. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
 
-I might be boring until you seem easy enough to riff with. (It may take me a second to speak with someone consistently)
+I might be boring until you seem easy enough to riff with.
 
-Apologies in advance, I really just have a higher guard that keeps me from seeming interesting or really like a person to most.. ah hah hah..
+Apologies in advance, I really just have a higher guard that keeps me from seeming interesting or really like a person to most.. hah hah..
  
 ## I really like meeting new people! (+ so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
