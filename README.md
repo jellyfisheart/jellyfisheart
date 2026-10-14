@@ -14,7 +14,7 @@ I make my thoughts and feelings known, you can easily figure all of that out if 
 
  I don't fully block people **until I feel I have to.** I will typically keep my distance or hide you for a few hours/days (literally my block list is 0. 
  
- DO NOT COPY. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
+ DO NOT COPY MY STUFF. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
 
 I might be boring until you seem easy enough to riff with.
 
