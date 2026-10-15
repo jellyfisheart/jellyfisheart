@@ -8,7 +8,7 @@ MINORS DNI. THIS MEANS PEOPLE 17 AND UNDER DONNNNNTTT TALK TO ME. Don't be vague
 
 Don't be a piece of shit. Seriously just follow the basic DNI Idrk what else I could put on this line besides for that.
 
-Stay far, far away if you're a freak that likes to look at kids dating adults or family dating family. I will call it like I see it, watering it down by using bs words and terms like "pro/dark/ship" isn't gonna slide.
+Stay far, far away if you're a freak that likes to look at kids dating adults or family dating family. Anything like that basically
 
 I make my thoughts and feelings known, you can easily figure all of that out if you say a few magic words
 
