@@ -17,8 +17,6 @@ I make my thoughts and feelings known, you can easily figure all of that out if 
  DO NOT COPY MY STUFF. Keep inspo limited if at all, BUT!!! You can ask for tips and pointers and I'll gladly oblige 
 
 I might be boring until you seem easy enough to riff with.
-
-Apologies in advance, I really just have a higher guard that keeps me from seeming interesting or really like a person to most.. hah hah..
  
 ## I really like meeting new people! (+ so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
