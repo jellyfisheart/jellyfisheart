@@ -18,7 +18,7 @@ I make my thoughts and feelings known, you can easily figure all of that out if 
 
 I might be boring until you seem easy enough to riff with, it's never you, I just have a hard time bouncing off of most people #asocial 
 
-I have a hard time with conversations in general so please be patient, I'm really timid while I'm testing the waters but once i warm up to you.. I'm still timid but in a funny way 
+I have a hard time with conversations in general so please be patient, I'm really timid while I'm testing the waters.. but once I warm up to you.. I'm still timid but in a funny way 
  
 ## I really like meeting new people! (+ so desperately need to) !! I hope we can roll around in dirt together!!! Plsplspls don't hesitate on trying to be closer! I will always try to go with the flow!! 𑣲 ༊𑇓ೃ˖༘ ᰔᩚ 
 
